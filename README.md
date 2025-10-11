@@ -48,7 +48,8 @@ credits for all the images to the rightful owner in tumblr⠀ ⠀ ⠀ ⠀ ⠀ �
 
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/b86ff74e-4df9-4f3b-ab4b-bce35aa9f83c" />⠀ ⠀ ⠀I JUST LOVE MY SIBLINGS RAHHHHHHHHHHHHHHHHHHHHHHHH ˚ ༘♡ ⋆｡˚⠀ ⠀ ⠀ 
 
-⠀ i love my bf and my platonic wife the most⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ~⠀ ⠀ !⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <img width="180" height="419" alt="image" src="https://github.com/user-attachments/assets/67cfa1b4-f985-478a-a212-4d55c2af605c" /><img width="180" height="419" alt="image" src="https://github.com/user-attachments/assets/35c152b2-f998-4d00-bddd-9e5ce605a75b" />
+⠀ i love my bf and my platonic wife the most⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ~⠀ ⠀ !⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <img width="180" height="419" alt="image" src="https://github.com/user-attachments/assets/67cfa1b4-f985-478a-a212-4d55c2af605c" /><img width="180" height="419" alt="image" src="https://github.com/user-attachments/assets/1b3dc457-003c-43b8-852b-129eaab2eeb7" />
+
 
 <img width="128" height="128" alt="image" src="https://github.com/user-attachments/assets/b2d895cc-91f3-4abf-932d-484617a8c96a" /> ⠀ ⠀ ꉂ ᵎᵎ  ⠀ ⠀ ⠀ ⠀THEY ⠀ ⠀/ ⠀ ⠀ALL ⠀ ⠀𖦹˚ ༘🦇 ೀ⋆｡˚ ⠀ <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/54f8c039-6eb3-4280-a5cb-52f9de2ca3b8" /><img width="100" height="106" alt="image" src="https://github.com/user-attachments/assets/b181b4c9-3457-4cf7-9a78-4a7201e59e03" />
 
