@@ -54,7 +54,8 @@ credits for all the images to the rightful owner in tumblr⠀ ⠀ ⠀ ⠀ ⠀ �
 
 ── ❤︎ isaac! ˎˊ˗ ⠀ ⠀ ⠀ ⠀ ⠀ i love my sun⠀ ⠀ ⠀ ⠀ ⠀ <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/1e2a622e-ca13-46c2-be63-c4d1e9951fcc" />
 
-⠀ ࣪       ︵ֺ︵  ㅤ ㅤ𝜚      ۪ ⠀⠀ ⪩⪨⠀ ⠀ ⠀SISI⠀ ⠀ ⠀Vivian⠀ ⠀ ⠀Zach⠀ ⠀ ⠀Harvey⠀ ⠀ ⠀Vik⠀ ⠀ ⠀Vax⠀ ⠀ ⠀Elly⠀ ⠀ ⠀Wren⠀ ⠀ ⠀Silv⠀ ⠀ ⠀Moon⠀ ⠀ ⠀Dolly <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/72ae82b2-f25c-49dd-bd5b-83c25054b82a" /><img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/14589485-da08-43e4-b650-f50abeec060f" /><img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/c104cd44-e86d-4b66-99a3-c649e71c621f" /> ⠀  ⠀  ⠀  ⠀ more infos on links ⠀  ⠀ ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
+⠀ ࣪       ︵ֺ︵  ㅤ ㅤ𝜚      ۪ ⠀⠀ ⪩⪨⠀ ⠀ ⠀SISI⠀ ⠀ ⠀Vivian⠀ ⠀ ⠀Zach⠀ ⠀ ⠀Harvey⠀ ⠀ ⠀Vik⠀ ⠀ ⠀Vax⠀ ⠀ ⠀Elly⠀ ⠀ ⠀Wren⠀ ⠀ ⠀Silv⠀ ⠀ ⠀Moon⠀ ⠀ ⠀Dolly <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/72ae82b2-f25c-49dd-bd5b-83c25054b82a" /><img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/14589485-da08-43e4-b650-f50abeec060f" /><img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/c104cd44-e86d-4b66-99a3-c649e71c621f" /> ⠀  ⠀  ⠀  ⠀ more infos on links ⠀  ⠀ ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚⠀  ⠀<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/43323b91-9e47-49f0-a73a-096ead76b8d6" />
+
 
 
 
