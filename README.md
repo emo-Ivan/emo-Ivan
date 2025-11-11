@@ -1,6 +1,6 @@
 ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/3ab26900-d3e9-4302-be65-43227bb1e7c6" />
 
-⋮ ⠀⠀ ⠀ ⠀ ⠀ ( ˶ˆᗜˆ˵ ) ⠀ ⠀   ⠀ “ ill drown in you ”⠀  ⠀  ᐟᐟ☆ ⠀ ⠀ ⠀[My Mizi](https://github.com/bunnytrapped) ⠀  ⠀ 𝄞⨾𓍢ִ໋⠀ ⠀⠀ ⠀⠀⠀[Straw](https://parasiticrose.straw.page/)⠀⠀ ⠀⠀ ⠀⠀ 𝜗ৎ
+⋮ ⠀⠀ ⠀ ⠀ ⠀ ( ˶ˆᗜˆ˵ ) ⠀ ⠀   ⠀ “ ill drown in you ”⠀  ⠀  ᐟᐟ☆ ⠀ ⠀ ⠀[My Mizi](https://github.com/jock-till) ⠀  ⠀ 𝄞⨾𓍢ִ໋⠀ ⠀⠀ ⠀⠀⠀[Straw](https://parasiticrose.straw.page/)⠀⠀ ⠀⠀ ⠀⠀ 𝜗ৎ
 
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⸜(｡˃ ᵕ ˂ )⸝♡ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ 𓎠𓎠𓎠𓎠 ⠀ ⠀  ⠀ ⠀ ⠀⠀ <img width="21" height="12" alt="image" src="https://github.com/user-attachments/assets/f649d96e-de51-4d4b-bd32-3007ae8c8ad8" />
